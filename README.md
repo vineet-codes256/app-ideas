@@ -1,1 +1,1 @@
-Ideas to work on someday!
+💡 Ideas to work on someday!
